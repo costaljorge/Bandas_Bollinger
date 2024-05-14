@@ -1,0 +1,1 @@
+# Bandas_Bollinger
